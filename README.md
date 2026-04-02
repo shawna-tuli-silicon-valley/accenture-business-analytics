@@ -1,2 +1,3 @@
-# accenture-federal-services-arlington-business-analytics
-[Business Analytics] 2026 Accenture Federal Services Arlington 
+<img width="6000" height="3750" alt="image" src="https://github.com/user-attachments/assets/79e49aec-60c1-440e-a797-84d880c2b22f" />
+
+"Although she has only been on the project for a short period of time, she has already made a strong and positive impression. She is consistently eager to contribute and demonstrates a high level of drive in her work. She proactively checks in with the team to understand priorities, offers support without being prompted, and continually looks for ways to add value. Her willingness to jump in, learn quickly, and stay engaged has been a great asset to the team. I look forward to seeing her continued growth and contributions as she becomes more familiar with the project." - Patsuda Tonburintrtipye (Accenture Federal Services Arlington Manager)
